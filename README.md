@@ -1,0 +1,1 @@
+# akinmaya.com.tr
